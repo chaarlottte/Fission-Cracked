@@ -1,6 +1,10 @@
 # Fission-Cracked
 https://fission.best cracked by [Cystemz](https://github.com/Cystemzz) &amp; quick
 
+Download in releases, select Login, and type whatever you want for the username and password.
+
+[VirusTotal scan](https://www.virustotal.com/gui/file-analysis/MDhhM2UwMzQ1ZWRhODRhMTgyMWVlM2FkODRmODkxOTk6MTY3NTQ0NjU3NQ==)
+
 > Amazing brain<br>
 ![amazing brain](https://github.com/chaarlottte/Fission-Cracked/raw/main/image%20(4).png)<br>
 
